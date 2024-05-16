@@ -1,1 +1,2 @@
 # pi-node
+Hasn't Pi team kyced people who are doing criminal and illegal activities with kyced accounts and phishing wallets?  Should I file a complaint with the court?  What business is responsible?  Is this the answer to the pioneers' loyalty?  I wrote a message many times, but no one answers. 1500 Pintork's kyc account from my wallet was phishing and hacked. I wrote a message to the portal team many times, and no one answered!  Shouldn't the main team ensure the security of the pioneers? Shouldn't they block these phishing accounts?
